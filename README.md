@@ -6,6 +6,6 @@
 
 - Don't be weird obviously,
 
-- I will block anyone that acts really immature, childish, or annoying in general.
+- I will block anyone that acts really immature or annoying in general.
 
 - I am a minor, keep that in mind.
