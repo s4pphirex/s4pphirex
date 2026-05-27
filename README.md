@@ -6,4 +6,4 @@
 
 - Don't be weird obviously,
 
-- I will block anyone that acts really or annoying in general.
+- I will block anyone that acts immature or just annoying in general.
