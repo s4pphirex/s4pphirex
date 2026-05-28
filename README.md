@@ -7,4 +7,6 @@
 - Don't be weird obviously,
 
 - I will block anyone that acts immature or just annoying in general.
-<img width="268" height="224" alt="image" src="https://github.com/user-attachments/assets/3de28477-14d3-4df9-827d-21a532b38552" />
+
+             <img width="547" height="457" alt="indir (5)" src="https://github.com/user-attachments/assets/cb75a8a6-fefd-4bb9-9770-f28104543a3b" />
+        
