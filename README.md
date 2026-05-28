@@ -8,5 +8,6 @@
 
 - I will block anyone that acts immature or just annoying in general.
 
-             <img width="547" height="457" alt="indir (5)" src="https://github.com/user-attachments/assets/cb75a8a6-fefd-4bb9-9770-f28104543a3b" />
+             
         
+<img width="547" height="457" alt="indir (5)" src="https://github.com/user-attachments/assets/eb0703c1-a100-4a72-a6f9-937428f227b6" />
