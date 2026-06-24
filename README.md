@@ -13,3 +13,5 @@
 
         
 <img width="547" height="457" alt="indir (5)" src="https://github.com/user-attachments/assets/eb0703c1-a100-4a72-a6f9-937428f227b6" />
+
+<img width="946" height="680" alt="Ok" src="https://github.com/user-attachments/assets/d2c16656-2801-4576-80c1-259f792aa6ba" />
