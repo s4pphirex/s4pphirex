@@ -31,4 +31,4 @@
 <img width="906" height="724" alt="Ok10" src="https://github.com/user-attachments/assets/9b19e51d-d3d0-4862-a3bc-1ed2a524e025" />
 <img width="1199" height="815" alt="Ok10 (1)" src="https://github.com/user-attachments/assets/54098644-a9d7-457d-abb9-2ee1240f8089" />
 <img width="3840" height="2160" alt="New Drawing11 (1)" src="https://github.com/user-attachments/assets/1bab8613-54dc-4ef9-8c52-f085212e91e3" />
-<img width="799" height="571" alt="image" src="https://github.com/user-attachments/assets/8f5bd357-4a0f-430d-b7d9-1d3a380a6246" /> I like Champion
+<img width="799" height="571" alt="image" src="https://github.com/user-attachments/assets/8f5bd357-4a0f-430d-b7d9-1d3a380a6246" />I like Champion
