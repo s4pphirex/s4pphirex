@@ -12,8 +12,8 @@
 <br>
 <br>
 
-# Art
-<img width="1047" height="616" alt="Ok (4)" src="https://github.com/user-attachments/assets/c5615c06-1b3b-40fd-8482-74f4ff9c478e" /> <br>
+# Art [Mostly unfinished]
+<img width="1036" height="692" alt="Ok (5)" src="https://github.com/user-attachments/assets/39414556-3d15-4781-a27a-3fe812a7e86c" /> <br>
 <img width="458" height="330" alt="Untitled drawing26 (2)" src="https://github.com/user-attachments/assets/45d0a5ec-509c-4b84-ac57-8ee5a7476d8f" />
 <img width="1332" height="680" alt="Untitled drawing45 (1)" src="https://github.com/user-attachments/assets/e3b96b8a-399b-4e2e-b0c4-c84ae683d6b4" />
 <img width="831" height="739" alt="New board (3)" src="https://github.com/user-attachments/assets/dfd479c2-bdaa-48a3-89ad-261af3cae6a8" />
