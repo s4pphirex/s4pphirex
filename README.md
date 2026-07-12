@@ -9,11 +9,3 @@
 - I will block anyone that acts immature or just annoying in general.
 
 - I'm not really looking for friends "But you're in a socializing game" on rare occasions, only for my partner and sometimes I just hang around to watch people start drama over pixels it's funny.
-
-
-# Art 🖊️
-
-<img width="1199" height="815" alt="Ok10 (1)" src="https://github.com/user-attachments/assets/f53b005c-5d19-461f-93de-0d9df64d3409" /> <br>
-<img width="906" height="724" alt="Ok10" src="https://github.com/user-attachments/assets/e0d0f549-328e-4e77-8f7c-4149a212075a" /> <br>
-<img width="831" height="739" alt="New board (3)" src="https://github.com/user-attachments/assets/fe81d12e-f363-43af-a975-6ee98acc25f8" /> <br><img width="1017" height="667" alt="Ok (3)" src="https://github.com/user-attachments/assets/43ec926a-6484-45c7-9e08-ea7c89c7c8b3" /> <br>
-<img width="799" height="571" alt="image" src="https://github.com/user-attachments/assets/ea48ac41-b6b2-4cd3-aa23-f0b2cfc3441a" /> <br>
