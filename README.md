@@ -11,10 +11,19 @@
 - I'm not really looking for friends "But you're in a socializing game" on rare occasions, only for my partner and sometimes I just hang around to watch people start drama over pixels it's funny.
 <br>
 <br>
+<br>
+<br>
+
 <img width="2048" height="513" alt="Başlıksız16_20260712232429" src="https://github.com/user-attachments/assets/ba851f72-2201-43ce-9adc-8ab14d4a4acf" />
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+
+
+
 
 # Magma art [Mostly unfinished]
 <img width="1036" height="692" alt="Ok (5)" src="https://github.com/user-attachments/assets/39414556-3d15-4781-a27a-3fe812a7e86c" /> <br>
