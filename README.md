@@ -13,8 +13,9 @@
 <br>
 <br>
 <br>
-
-
+<br>
+<br>
+<br>
 # Magma art [Mostly unfinished]
 <img width="1036" height="692" alt="Ok (5)" src="https://github.com/user-attachments/assets/39414556-3d15-4781-a27a-3fe812a7e86c" /> <br>
 <img width="458" height="330" alt="Untitled drawing26 (2)" src="https://github.com/user-attachments/assets/45d0a5ec-509c-4b84-ac57-8ee5a7476d8f" />
