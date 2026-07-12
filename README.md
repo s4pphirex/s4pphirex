@@ -16,4 +16,5 @@
 <img width="1199" height="815" alt="Ok10 (1)" src="https://github.com/user-attachments/assets/f53b005c-5d19-461f-93de-0d9df64d3409" /> <br>
 <img width="906" height="724" alt="Ok10" src="https://github.com/user-attachments/assets/e0d0f549-328e-4e77-8f7c-4149a212075a" /> <br>
 <img width="831" height="739" alt="New board (3)" src="https://github.com/user-attachments/assets/fe81d12e-f363-43af-a975-6ee98acc25f8" /> <br>
+<img width="1020" height="594" alt="Ok (2)" src="https://github.com/user-attachments/assets/1f371074-5604-4e13-9855-46ef5858e0d7" />
 <img width="799" height="571" alt="image" src="https://github.com/user-attachments/assets/ea48ac41-b6b2-4cd3-aa23-f0b2cfc3441a" />
