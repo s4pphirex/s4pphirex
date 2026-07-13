@@ -1,4 +1,4 @@
-<img width="2048" height="873" alt="Başlıksız16" src="https://github.com/user-attachments/assets/e9ae9567-e875-46a9-bbc2-8ab781793abb" />
+<img width="2048" height="873" alt="CHAMPION BG" src="https://github.com/user-attachments/assets/853ba370-a4e3-41ab-879d-ef792807cb4c" />
 
 
 # `BEFORE YOU INTERACT`
@@ -13,8 +13,7 @@
 <br>
 <br>
 <br>
-
-<img width="2048" height="513" alt="Başlıksız16_20260712232429" src="https://github.com/user-attachments/assets/ba851f72-2201-43ce-9adc-8ab14d4a4acf" />
+<img width="2048" height="513" alt="Başlıksız16_20260712232429" src="https://github.com/user-attachments/assets/148e1da4-e714-49f4-b8e1-91bb43787306" />
 <br>
 <br>
 <br>
