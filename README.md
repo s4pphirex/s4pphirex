@@ -24,7 +24,7 @@
 
 
 
-# Magma art [Mostly unfinished]
+# SOME Magma art [Unfinished]
 These are not exactly a pair, but rather a duo as my partner and I. (Builderman is shaded by my partner)
 <img width="831" height="739" alt="New board (3)" src="https://github.com/user-attachments/assets/dfd479c2-bdaa-48a3-89ad-261af3cae6a8" />
 <img width="906" height="724" alt="Ok10" src="https://github.com/user-attachments/assets/9b19e51d-d3d0-4862-a3bc-1ed2a524e025" />
