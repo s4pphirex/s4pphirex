@@ -8,7 +8,7 @@ $\color{#CF0003}\textsf{ - Don't be weird obviously, }$
 
 $\color{#CF0003}\textsf{ - I will block anyone that acts immature or just annoying in general. }$
 
-$\color{#CF0003}\textsf{ - I'm not really looking for friends "But you're in a socializing game" on rare occasions, only for my partner. }$
+$\color{#CF0003}\textsf{ - I'm not looking for friends "But you're in a socializing game" on rare occasions, only for my partner. }$
 <br>
 <br>
 <br>
