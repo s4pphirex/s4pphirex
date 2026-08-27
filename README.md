@@ -2,7 +2,7 @@
 
 
 # $\color{#CF0003}\textsf{ BEFORE YOU INTERACT }$
-$\color{#CF0003}\textsf{ - I have a lovely partner, so obviously I don't want anyone to interact with me having any romantic intentions, it will result in a block. }$
+$\color{#CF0003}\textsf{ - I have a lovely partner, obviously I wouldn't like for anyone to interact with me having any romantic intentions, it will result in a block. }$
 
 $\color{#CF0003}\textsf{ - Don't be weird obviously, }$
 
